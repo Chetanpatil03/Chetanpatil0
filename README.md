@@ -13,5 +13,5 @@
 📫 Get in Touch
 
 - 📧 Email: bachchhavchetan45@gmail.com
-- 💼 LinkedIn: Chetan Patil (https://linkedin.com/in/yourusername)
+- 💼 LinkedIn: Chetan Patil (https://www.linkedin.com/in/chetan-bachchhav03)
 
